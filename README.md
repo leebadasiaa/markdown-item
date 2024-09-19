@@ -20,4 +20,8 @@
 
 [왜이렇게빨리끝내나요](https://youtu.be/CNYqG26Q-to?si=P3wxcMI6aqlVOsfv,"1557")
 
+### 드레이븐이 문제에요
 ![드레이븐이문제에요](https://upload3.inven.co.kr/upload/2022/11/28/bbs/i15990313416.jpg?MW=800)
+
+### 대상혁 
+![대상혁](https://github.com/leebadasiaa/markdown-item/blob/main/faker.jpg)
